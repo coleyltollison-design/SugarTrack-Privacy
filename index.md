@@ -189,4 +189,4 @@ Questions about this Privacy Policy or SugarTrack's privacy practices may be dir
 
 **Application:** SugarTrack
 
-**Contact email:** coleyltollison@gmail.com
+**Contact email:** slawdoggsoftware@gmail.com
